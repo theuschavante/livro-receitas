@@ -26,6 +26,8 @@
 
 5. Leve ao congelador por 4 horas.
 
+6. Está pronto para servir. :man_cook:
+
    
 
 #### Informações adicionais:
